@@ -8,7 +8,7 @@
 			   
 =====================================
 ## Who is this Roadmap for?
-For all the beginners
+For all beginners
 =====================================
 ## what will you learn?
 You will learn about many specialties in it, and choose what suits you, and that Roadmap will take you from beginnings to professionalism and self-reliance to complete the path.
