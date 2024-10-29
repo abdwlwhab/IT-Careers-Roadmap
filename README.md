@@ -7,11 +7,11 @@
                Cybersecurity expert
 			   
 =====================================
-## Who is this Riadmap for?
+## Who is this Roadmap for?
 For all the beginners
 =====================================
 ## what will you learn?
-You will learn about many specialties in it, choose what suits you, and that Roadmap will take you from beginnings to professionalism and self-reliance to complete the path.
+You will learn about many specialties in it, and choose what suits you, and that Roadmap will take you from beginnings to professionalism and self-reliance to complete the path.
 
 
 
